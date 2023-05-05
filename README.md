@@ -4,6 +4,6 @@
 
 Neden bu sensörleri seçtik
 
-Screenshot_2.png
+
 
 
